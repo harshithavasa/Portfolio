@@ -18,7 +18,7 @@ Explore the selected projects that demonstrate my proficiency in various technol
 
 ## Contact
 
-Feel free to reach out via email: your.email@example.com  
+Feel free to reach out via email: harshithavasa07@gmail.com  
 Connect with me on LinkedIn: https://www.linkedin.com/in/harshitha-vasa-658720168/ | GitHub: https://github.com/harshithavasa
 
 ---
