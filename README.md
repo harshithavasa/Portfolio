@@ -20,6 +20,7 @@ Explore the selected projects that demonstrate my proficiency in various technol
 
 Feel free to reach out via email: harshithavasa07@gmail.com  
 Connect with me on LinkedIn: https://www.linkedin.com/in/harshitha-vasa-658720168/ | GitHub: https://github.com/harshithavasa
+Portfolio Link: https://harshithavasa.github.io/Portfolio/
 
 ---
 
